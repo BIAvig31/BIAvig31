@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @BIAvig31
 - 👀 I’m interested in musicals
-- 🌱 I’m currently learning programation 
+- 🌱 I’m currently learning programming 
 - 💞️ I’m looking to collaborate on helping people
 - 📫 How to reach me beatrizvignoles@gmail.com
 
